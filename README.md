@@ -4,7 +4,7 @@
 
 ---
 ### 🤝 Support
-If you found this helpful, please **Subscribe** to [Dr Abhishek](https://www.youtube.com/@bhooomika R/videos) for more Google Cloud solutions!
+If you found this helpful, please **Subscribe** to [bhoomika R](https://www.youtube.com/@bhooomika R/videos) for more Google Cloud solutions!
 
 
 ### ⚠️ Disclaimer
